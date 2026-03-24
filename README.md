@@ -1,3 +1,3 @@
 # Gaming
 
-Checkout my secondary [cima-alfa](https://github.com/cima-alfa) account for gaming related projects.
+Checkout my [secondary account](https://github.com/cima-alfa) for gaming related projects.
